@@ -1,0 +1,1 @@
+Inspired by Akari Light Sculptures.
